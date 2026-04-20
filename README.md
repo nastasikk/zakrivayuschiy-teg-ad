@@ -1,1 +1,1 @@
-# zakrivayuschiy-teg-ad
+https://github.com/nastasikk/zakrivayuschiy-teg-ad
